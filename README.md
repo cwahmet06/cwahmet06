@@ -1,5 +1,5 @@
 # 💫 About Me:
-💬 Ben Ahmet Mert Karakoçoğlu 1999 yılında Ankara'da<br>doğdum. İlk ve orta öğretimimi Ankara'da tamamladım.<br>Lise öğretimimi Etimesgut Akıllı Okul Anadolu Lisesinde<br>tamamladım. 2020'de Konya Selçuk Üniversitesi<br>Elektrik-Elektronik Mühendisliği programına başladım<br>ve şuan 3. sınıf öğrencisiyim.<br>⚡ Yaptığım 3 projeye ve kaynak dosyalarına profilimden ulaşabilirsiniz.
+🌱 I am Ahmet Mert Karakoçoğlu I was born in 1999 in Ankara.<br>🔭 I completed my primary and secondary education in Ankara. I completed my high school education at Etimesgut Smart School Anatolian High School.<br>👯 Konya Selcuk University in 2020 I started the Electrical and Electronics Engineering program.<br>🤝 And I am currently a 3rd year student.<br>⚡ I did my internship-1 at Ankara Ostim Technopark, Boğaziçi Defense Technologies Inc.<br>💬 Ask me about
 
 
 ## 🌐 Socials:
